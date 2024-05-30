@@ -1,4 +1,4 @@
-Student at CUNY pursuing a BS of Information Systems.  
+Student at CUNY pursuing a BS in Information Systems.  
 Currently looking for an internship!!!  
 email: kp.mac09@gmail.com  
 
