@@ -1,6 +1,6 @@
 Student at Queens College pursuing a BA in Computer Science.  
 Currently looking for an internship!!!  
-email: kp.mac09@gmail.com  
+email: keith.p.mcdade@gmail.com  
 
 <!---
 keithmcdade/keithmcdade is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
