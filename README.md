@@ -1,4 +1,4 @@
-Student at CUNY pursuing a BS in Information Systems.  
+Student at Queens College pursuing a BA in Computer Science.  
 Currently looking for an internship!!!  
 email: kp.mac09@gmail.com  
 
